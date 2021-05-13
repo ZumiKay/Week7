@@ -1,1 +1,1 @@
-# Week7 Assignment Koizumi_Kay
+# Week7 Assignment 
